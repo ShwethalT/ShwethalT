@@ -4,7 +4,7 @@
 🧬Bioinformatics Research Assistant at Lee Lab, SJSU<br/>
 💉🦷 Dental Surgeon<br/>
 💊 I am very interested in the intersection of AI with omics for precision medicine<br/>
-💫 Connect with me! [Linkedin](www.linkedin.com/in/shwethal-trikannad)<br/>
+💫 Connect with me! [LinkedIn](www.linkedin.com/in/shwethal-trikannad)<br/>
 
 
 
